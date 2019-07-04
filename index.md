@@ -24,4 +24,4 @@
 《 人民日报 》（ 2019年06月26日 01 版）
 
 
-其他博客：http://blog.aoeqi.com/
+其他博客：http://www.aoeqi.com/
